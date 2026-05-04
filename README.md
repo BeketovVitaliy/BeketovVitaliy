@@ -38,4 +38,4 @@
 ---
 
 ### Contact with me:
-* **Telegram** — [@Avanor9999](https://t.me/@Avanor9999)  
+* **Telegram** — [@Avanor9999](https://t.me/Avanor9999)  
